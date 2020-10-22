@@ -1,5 +1,6 @@
 Symptoms and Treatment:-
 
+
  About one in four people infected with dengue will get sick.
  For people who get sick with dengue, symptoms can be mild or severe.
  Severe dengue can be life-threatening within a few hours and often requires hospitalization.
